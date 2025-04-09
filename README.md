@@ -2,7 +2,7 @@
 
 Back pain is one of the most common health complaints globally, affecting millions of people every year. Whether you suffer from **lower back pain** due to sitting too long or muscle strain after lifting something heavy, simple daily routines can help you find relief. In this article, we’ll walk you through **7 easy exercises for back pain relief** that you can do at home — all in under 10 minutes.
 
-> 💡 **Watch real-life back pain treatment in action here:** [https://backpain.lanauke.com/](https://backpain.lanauke.com/)
+> 💡 **Watch real-life back pain treatment in action here:** [Watch now on this link](https://backpain.lanauke.com/)
 
 ---
 
